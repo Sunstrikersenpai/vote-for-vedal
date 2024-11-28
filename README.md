@@ -1,1 +1,1 @@
-# [VOTE FOR VEDAL987](https://thestreamerawards.com/) 
+# [VOTE FOR VEDAL987](https://www.thevtuberawards.com/vote) 
